@@ -7,6 +7,11 @@
 
 ### Hi there 👋
 
+🔍 Seeking opportunities to collaborate on exciting projects
+🌱 Always striving to grow and improve as a developer
+📫 Let's connect! Reach me at anshikasaklani894@gmail.com
+
+
 <!--
 **Anshika-111105/Anshika-111105** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
