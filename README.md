@@ -7,8 +7,10 @@
 
 ### Hi there 👋
 
-🔍 Seeking opportunities to collaborate on exciting projects
-🌱 Always striving to grow and improve as a developer
+🔍 Seeking opportunities to collaborate on exciting projects  
+
+🌱 Always striving to grow and improve as a developer  
+
 📫 Let's connect! Reach me at anshikasaklani894@gmail.com
 
 
