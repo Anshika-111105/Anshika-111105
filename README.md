@@ -13,6 +13,8 @@
 
 📫 Let's connect! Reach me at anshikasaklani894@gmail.com
 
+📫 Also available at www.linkedin.com/in/anshika-saklani-77a5a626a
+
 
 <!--
 **Anshika-111105/Anshika-111105** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
