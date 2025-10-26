@@ -9,7 +9,7 @@
 
 🔍 Seeking opportunities to collaborate on exciting projects  
 
-🌱 Always striving to grow and improve as a full stack developer  
+🌱 Always striving to grow and improve as a AI Engineer  
 
 📫 Let's connect! Reach me at anshikasaklani894@gmail.com
 
